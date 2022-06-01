@@ -1,19 +1,25 @@
 ## The Live-stream of leadership
 
+### Introduction
 Leadership is not like a movie you buy a DVD or go to a cinema to watch.  
-  
 It is like a live stream in multiple dimensions happening in us and all around us.  
-  
+
+### Leadership Skills 
+They do not matter if you can not live-stream them.
+
+### Everything comes together in a live-stream
+All our skills and abilities do not matter if you can not live-stream them  
 Not about what you have done in the past or what you will do in the future - but always streaming in the present moment  
-  
+
+## Benefits of looking at leadership this way
+### Makes it simple rather than complicated
+### Makes it actionable rather than abstract
 Not about big abstract concepts like courage, trust, empathy, love, and boldness but about being courageous, empathetic, and loving - at this moment. 
+### Makes it measurable rather than vague
 
--   simple rather than complicated.
--   Actionable rather than abstract
--   Measurable rather than vague
-
+## Live-Streaming and Bandwidth
+You can not talk about live-streaming without talking about bandwidth
 You can operate on limited bandwidth or full bandwidth by understanding some foundational human principles
-
   
 ## Three Principles  
 
@@ -30,13 +36,13 @@ You can operate on limited bandwidth or full bandwidth by understanding some fou
 
 ### Solutions and a fresh look at common problems based on the above principles  
   
-For each problem
+#### For each problem
 
 1.  what you need to stop doing
 2.  what you need to start doing
 3.  and why?
 
- > Disclaimer  
+#### Disclaimer  
  > 1.  Simple, not easy.
  > 2. Not about understanding but doing it. About practices - tiny actions that you repeat over time.
  > 3. Give it time. Leadership is like gardening. Do not plant a seed and expect flowers tomorrow
