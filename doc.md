@@ -1,11 +1,38 @@
 ## The Live-stream of leadership
 
 ### Introduction
-Leadership is not like a movie you buy a DVD or go to a cinema to watch.  
-It is like a live stream in multiple dimensions happening in us and all around us.  
+
+I want to start with a claim - "A lot of people know about leadership, but very few people know leadership." 
+
+Now, what do I mean by that?
+
+Let us take a simpler example. Suppose I want to learn cycling. So I pick up the top 3 books on cycling and read them page to page. I take my time, make notes as I read, and understand all there is to understand about cycling. In fact, if you were to ask me to write an exam on cycling, I can promise to pass with flying colours. 
+
+But, does that mean that I can actually get on a cycle and go from point A to B? 
+
+Does knowing about cycling makes me an expert cyclist? 
+
+If you have ever cycled, you know the answer is NO. 
+
+#### Knowing About vs Knowing
+
+To be able to cycle any distance, you have to know cycling. Not just "know about" it. 
+
+You have get on a cycle and practice. And that process includes falling down and getting back up on the bike. 
+
+All your book reading and intellectual understand of the physics behind cycling would not help unless you get on a cycle and actually practice. 
+
+And when you know cycling, you know it. Then it doesn't matter how much you "know about" cycling, or if you can pass an exam on the same. You know how to cycle, and that is all that matters.
+
+### Leadership is a performance art
+Just like cycling, leadership is a performance art. It is not about understand concepts academically and intellectually. It is actually about being in practice in this moment, or to say in other words, live-streaming your leadership. 
+
+If you can not live-stream your leadership in good quality, it does not matter how much you know about leadership. It does not matter what all degrees you have and what all courses you have taken. In the end, it all comes down to putting all of your skills, experiences, and qualifications to use in the moment when it really matters. 
+
+Leadership is like a live stream in multiple dimensions happening in us and all around us.  
 
 ### Leadership Skills 
-They do not matter if you can not live-stream them.
+Leadership is not like a movie you buy a DVD or go to a cinema to watch.   They do not matter if you can not live-stream them.
 
 ### Everything comes together in a live-stream
 All our skills and abilities do not matter if you can not live-stream them  
